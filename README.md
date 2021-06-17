@@ -1,5 +1,5 @@
 # Shinjuku-Subaru-Building_2018-07-19
-新宿スバルビル立入禁止2日前【場所：東京・新宿】
+新宿スバルビル立入禁止2日前【場所：東京・新宿】撮影日時：2018年7月19日
 ![新宿スバルビル_20180719_01](https://user-images.githubusercontent.com/20723919/107121442-cf4a2e00-68d5-11eb-83da-6f6821fae5a4.jpg)
 
 ![新宿スバルビル_20180719_02_新宿の目](https://user-images.githubusercontent.com/20723919/107121444-d40ee200-68d5-11eb-9756-b582b26effce.jpg)
