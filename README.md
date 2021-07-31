@@ -110,3 +110,4 @@
 
 ![新宿スバルビル_20180719_55](https://user-images.githubusercontent.com/20723919/107121611-b726de80-68d6-11eb-902d-a82011921f73.jpg)
 
+![新宿スバルビル_20180719_56](https://user-images.githubusercontent.com/20723919/127737425-01e54573-50bc-465c-879c-d71681ad686c.JPG)
